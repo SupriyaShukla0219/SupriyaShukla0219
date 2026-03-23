@@ -25,6 +25,6 @@ Crack high-paying product-based companies
 📫 Let's Connect
 💼 Open to collaboration and learning opportunities
 🌟 Always curious to explore new technologies
-🌟 Reach me : shuklasupriya41.ss@gmail.com
+🌟 linkedIn : https://www.linkedin.com/in/supriyas0219
 
 ⭐ “Consistency over perfection — building, learning, and growing every day.”
